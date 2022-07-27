@@ -1,2 +1,2 @@
 # nyoba
-![alt text](https://github.com/setanjadijadian/nyoba/commit/5a0d3b1f7a4a0ff74dc4d6148726b9a69037e7b7)
+![alt text](https://github.com/setanjadijadian/nyoba/blob/main/WhatsApp%20Image%202022-01-19%20at%2019.39.07.jpeg)
